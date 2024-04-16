@@ -3,9 +3,9 @@
 
 Olá! 
 
-Sou Amanda, tenho 35 anos e mãe solo de um adolescente e uma bebê. ❤
+Sou Amanda, tenho 35 anos, mãe do Matheus e da Alice ❤
 
-Sou deficiente auditiva unilateral, apaixonada por tecnologia e com uma trajetória profissional nada linear, sempre me vi voltada para a área de humanas. Com espírito empreendedor e experiência em diferentes áreas de negócio, amo ajudar as pessoas e solucionar problemas de forma prática e criativa. 
+Apaixonada por tecnologia, com uma trajetória profissional nada linear, sempre me vi voltada para a área de humanas, tenho espírito empreendedor e experiência em diferentes áreas de negócio, amo ajudar as pessoas e solucionar problemas de forma prática e criativa. 
 Há pouco mais de um ano, resolvi criar coragem e "mergulhar de cabeça" nesse processo de aprendizado tão desafiador e empolgante da tecnologia. Atualmente estou cursando bacharelado em Inteligência Artificial e entusiasmada com a possibilidade de contribuir com projetos inovadores.
 
 
